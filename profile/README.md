@@ -4,7 +4,7 @@ We are De La Roche Ltd. Historically a software consultancy in the UK that has m
 
 ## Our Brands
 
-We own  [Pinerock Finance](https:/www.pinerockfinance.com)
+We own  [Pinerock Finance](https://www.pinerockfinance.com)
 
 ## The Team
 
